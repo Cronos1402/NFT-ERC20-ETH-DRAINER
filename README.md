@@ -46,14 +46,23 @@ Do not buy an overpriced script for 4 eth and more..
 #To purchase the script and get more info contact me on telegram: @cronos1402
 
 95% of sellers are reseller or scammer!
+
 Investigation results:
+
 https://github.com/captaingreem/Lets-talk
+
 https://github.com/DrainsGang/NFT-ETH-DRAINER
+
 https://t.me/cryptodrainerss
+
 https://t.me/cryptodrainerscam
+
 https://t.me/nftdrainerr
+
 👻 Important :
+
 Also,I will provide info about obsec, hosting, marketing and more..
+
 Please do not text me if you are not ready to test and buy!
 
 #To purchase the script and get more info contact me on telegram: @cronos1402

@@ -1,5 +1,6 @@
 # NFT-ERC20-ETH-DRAINER
 This premium drainer script will drain all tokens on ERC20, all NFTs and Eth
+![dash](https://user-images.githubusercontent.com/121665021/215919556-9d54cd3c-d09d-42ba-9648-ca346e0e32f0.png)
 
 💡 Features
 
@@ -37,6 +38,15 @@ This premium drainer script will drain all tokens on ERC20, all NFTs and Eth
 
 🔥 - EASY PROFIT TO BE MADE RIGHT NOW WITH THIS NEW DRAINER!>>
 
+NO RED SCREEN
+
+![Walletconnect2](https://user-images.githubusercontent.com/121665021/215919596-1f9b7ee1-cf9b-414f-8fc2-d5660d6b503f.png)
+![walletconnect1](https://user-images.githubusercontent.com/121665021/215919616-f4143580-0cd1-4f27-a1f0-92764a2260c7.png)
+![photo_2023-01-31_20-22-36](https://user-images.githubusercontent.com/121665021/215922014-0141389d-7961-4a77-8079-844ad709de94.jpg)
+![photo_2023-01-31_20-22-32](https://user-images.githubusercontent.com/121665021/215922020-7251a675-26ab-4b9d-9d80-acd69fa3b4f7.jpg)
+![photo_2023-01-31_20-22-25](https://user-images.githubusercontent.com/121665021/215922023-0d86065d-9fe9-46f6-8c41-467c9fea6e12.jpg)
+![photo_2023-01-31_20-21-28](https://user-images.githubusercontent.com/121665021/215922024-370e6c63-1198-4836-8016-310617b13698.jpg)
+![photo_2023-01-31_20-22-40](https://user-images.githubusercontent.com/121665021/215922027-3730544d-9b60-438b-9e27-ef4963a93300.jpg)
 
 👻 Caution :
 Do not buy an overpriced script for 4 eth and more..

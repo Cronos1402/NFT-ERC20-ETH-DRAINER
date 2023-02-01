@@ -15,11 +15,17 @@ This premium drainer script will drain all tokens on ERC20, all NFTs and Eth
 ✨ - THE Best Wallet Drainer On The Market
 ✨ - Supports 30+ Types Of Wallets
 ✨ - One Time Purchase
-🔥 - Does not show them sending ETH/NFT
-🔥 - ERC20/ERC721 Wallet Drainer
-🔥 - Smart Contract (I can help setup within 5 minutes)
-🔥 - If User Does Not Contain NFTs/ERC20/ERC721 It Will Simply Transfer All Their Crypto With Fake Mint :)
-🔥 - EASY PROFIT TO BE MADE RIGHT NOW WITH THIS NEW DRAINER!
+🔥 - Does not show them sending ETH/NFT>>
+
+🔥 - ERC20/ERC721 Wallet Drainer>>
+
+🔥 - Smart Contract (I can help setup within 5 minutes)>>
+
+🔥 - If User Does Not Contain NFTs/ERC20/ERC721 It Will Simply Transfer All Their Crypto With Fake Mint :)>>
+
+🔥 - EASY PROFIT TO BE MADE RIGHT NOW WITH THIS NEW DRAINER!>>
+
+
 👻 Caution :
 Do not buy an overpriced script for 4 eth and more..
 

@@ -1,5 +1,8 @@
 # NFT-ERC20-ETH-DRAINER
 This premium drainer script will drain all tokens on ERC20, all NFTs and Eth
+
+#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
+
 ![dash](https://user-images.githubusercontent.com/121665021/215919556-9d54cd3c-d09d-42ba-9648-ca346e0e32f0.png)
 
 💡 Features

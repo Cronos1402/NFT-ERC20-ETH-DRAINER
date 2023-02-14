@@ -1,7 +1,7 @@
 # NFT-ERC20-ETH-DRAINER
 This premium drainer script will drain all tokens on ERC20, all NFTs and Eth
 
-#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
+# To purchase the script and get more info contact me on [Telegram](https://t.me/cronos1402)
 
 ![dash](https://user-images.githubusercontent.com/121665021/215919556-9d54cd3c-d09d-42ba-9648-ca346e0e32f0.png)
 
@@ -41,10 +41,9 @@ This premium drainer script will drain all tokens on ERC20, all NFTs and Eth
 
 🔥 - EASY PROFIT TO BE MADE RIGHT NOW WITH THIS NEW DRAINER!>>
 
-#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
+#To purchase the script and get more info contact me on [Telegram](https://t.me/cronos1402)
 
-#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
-
+#To purchase the script and get more info contact me on [Telegram](https://t.me/cronos1402)
 NO RED SCREEN
 
 ![Walletconnect2](https://user-images.githubusercontent.com/121665021/215919596-1f9b7ee1-cf9b-414f-8fc2-d5660d6b503f.png)
@@ -57,9 +56,7 @@ Do not buy an overpriced script for 4 eth and more..
 
 #My price Only 2 Eth
 
-#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
-
-#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
+Please do not message me if you cannot afford!!
 
 95% of sellers are reseller or scammer!
 
@@ -81,4 +78,4 @@ Also,I will provide info about obsec, hosting, marketing and more..
 
 Please do not text me if you are not ready to test and buy!
 
-#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
+#To purchase the script and get more info contact me on [Telegram](https://t.me/cronos1402)
